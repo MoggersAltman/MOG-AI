@@ -2,5 +2,5 @@
 
 ![MOG Mascot](preview.png)
 
-## BE A FUCKING WINNER.
+## BE A FU*KING WINNER.
 ## WIN AT EVERYTHING YOU DO.
